@@ -1,5 +1,11 @@
-﻿输入‘福利‘。开启超级功能<br>
-这次源码修复若干bug。<br>
-软件不行，可能是你的电信运营商封了解析ip<br>
-接口不是我的。接口很快失效的。接口1即将失效。<br>
-链接：http://pan.baidu.com/s/1gfv1Zaj 密码：5wts<br>
+﻿qq浏览器进入以下网址观看<br>
+（2018年2月27日更新）<br>
+http://javccdd.net<br>
+http://dio7777.net<br>
+http://www.j18ib.com<br>
+http://www.111avtb.com<br>
+http://www.qyl099.com<br>
+http://www.7mav1.com<br>
+http://www.sexx106.com<br>  
+http://99dd2.com<br>  
+http://hd.caonnn.net<br>  
